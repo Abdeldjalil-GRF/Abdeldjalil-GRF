@@ -43,7 +43,7 @@
 
 - 📧 guerroufabdeldjalil@gmail.com  
 - 📍 Based in Thiais (Paris area)  
-- 🔗 [LinkedIn](#) | [Portfolio (Coming soon)](#)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/abdeldjalil-guerrouf/) | [Portfolio (Coming soon)](#)
 
 ---
 
